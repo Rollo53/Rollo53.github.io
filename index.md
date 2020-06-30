@@ -14,4 +14,3 @@ Chuck Norris sagt:
 
 > Wen willst Du sprechen? Gott?
 > Was willst Du von mir?
-
