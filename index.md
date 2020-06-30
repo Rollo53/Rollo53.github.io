@@ -8,3 +8,4 @@ Größere Berühmtheit erlangte er als Filmgegner von Bruce Lee in Die Todeskral
 * Waffen
 * Kaugummi
 * Tabak
+* Steak
