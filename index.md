@@ -9,3 +9,8 @@ Größere Berühmtheit erlangte er als Filmgegner von Bruce Lee in Die Todeskral
 * Kaugummi
 * Tabak
 * Steak
+
+Chuck Norris sagt:
+
+> Wen willst Du sprechen? Gott?
+> Was willst Du von mir?
